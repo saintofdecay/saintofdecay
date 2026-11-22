@@ -1,9 +1,11 @@
-# I like cats and stuff, this account is made for Pony Town.
+# this account is made for Pony Town.
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/10054448-fe21-49ea-aaa2-e81c873fa0c1" />
 
-## I do like MCYT, specifically Saparata and Schpood.
+Things I'm interested in? 
+## South park, nullscape, no more time, and a hundred other things. 
 
-## I make art sometimes, most of my socials are called: cattsyhio or Cathio.
+My hobbies? 
+## Arts and crafts, listening to music, playing video games, writing. 
 
-# Goodbye. ⚞^. .^⚟
+## Goodbye. ⚞^. .^⚟
 
